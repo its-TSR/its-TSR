@@ -1,5 +1,5 @@
 # 💫About Me :
-I'm currently working on mySelf.
+Currently working on mySelf.
 
 A beginner in BLOCKCHAIN space👨‍🎓...
 currently looking for internship 👨‍💻. 
